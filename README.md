@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **patelyash3008@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/yash-patel-7373151a0/?profileId=ACoAAC8IWtsBQ2UlXAvLsvDj-IR6d1aZgD4y6yM](https://www.linkedin.com/in/yash-patel-7373151a0/?profileId=ACoAAC8IWtsBQ2UlXAvLsvDj-IR6d1aZgD4y6yM)
+- 📄 Know about my experiences [https://www.linkedin.com/in/yash-patel-7373151a0/](https://www.linkedin.com/in/yash-patel-7373151a0/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
